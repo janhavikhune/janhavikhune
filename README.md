@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on AI and IoT-based projects, web applications, and learning resources
 
-📫 How to reach me: LinkedIn : [Janhavi Khune(www.linkedin.com/in/janhavi-khune-951501258)] or email me at janhavikhune01@gmail.com
+📫 How to reach me: LinkedIn : [Janhavi Khune (www.linkedin.com/in/janhavi-khune-951501258) or email me at janhavikhune01@gmail.com
 
 ⚡ Fun fact: I love creating projects that merge AI and Edge Computing with practical real-world applications 🌍
 
